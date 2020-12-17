@@ -1,20 +1,20 @@
 # Juramentos da Tropas de Lanternas
 
-### Olá!  Aqui é apenas uma coletânea dos juramentos das tropas dos Lanternas! :sunglasses: 
+### OlÃ¡!  Aqui Ã© apenas uma coletÃ¢nea dos juramentos das tropas dos Lanternas! :sunglasses: 
 
 ##### Antes de qualquer coisa, precisamos falar um pouco sobre o Espectro Emocional.
 
-##### Você sabia que a cor de cada tropa dos lanternas representa uma emoção? 
+##### VocÃª sabia que a cor de cada tropa dos lanternas representa uma emoÃ§Ã£o? 
 
-Vamos definir brevemente o que é esse carinha!
+Vamos definir brevemente o que Ã© esse carinha!
 
 
 
-O Espectro Emocional eletromagnético é um campo de energia que é alimentado pelas emoções de todos os seres sencientes**.
+O Espectro Emocional eletromagnÃ©tico Ã© um campo de energia que Ã© alimentado pelas emoÃ§Ãµes de todos os seres sencientes**.
 
-Inevitavelmente, os seres sencientes aprenderam a canalizar esse espectro e criaram formas únicas de energia com base em emoções, com uma cor única para cada emoção.
+Inevitavelmente, os seres sencientes aprenderam a canalizar esse espectro e criaram formas Ãºnicas de energia com base em emoÃ§Ãµes, com uma cor Ãºnica para cada emoÃ§Ã£o.
 
-O Espectro Emocional é dividido nas sete cores do arco-íris. Temos então:
+O Espectro Emocional Ã© dividido nas sete cores do arco-Ã­ris. Temos entÃ£o:
 
 **Vermelho:** Raiva
 
@@ -22,23 +22,23 @@ O Espectro Emocional é dividido nas sete cores do arco-íris. Temos então:
 
 **Amarelo**:  Medo
 
-**Verde**: Força de Vontade
+**Verde**: ForÃ§a de Vontade
 
 **Violeta**: Amor
 
-**Azul**: Esperança
+**Azul**: EsperanÃ§a
 
-**Índigo**: Compaixão
+**Ãndigo**: CompaixÃ£o
 
 
 
-A ausência das cores, o **Preto**, representa a Morte, enquanto que a união de todas elas, **Branco**, é equivalente à vida
+A ausÃªncia das cores, o **Preto**, representa a Morte, enquanto que a uniÃ£o de todas elas, **Branco**, Ã© equivalente Ã  vida
 
 
 
 Sem mais delongas, aqui se encontra os seguintes juramentos:
 
-- Juramento  da Tribo índigo
+- Juramento  da Tribo Ã­ndigo
 - Juramento das Safiras Estrelas
 - Juramento do Agente Laranja
 - Juramento dos Lanternas Azuis
@@ -46,8 +46,7 @@ Sem mais delongas, aqui se encontra os seguintes juramentos:
 - Juramento dos Lanternas Vermelhos
 - Juramento da Tropa Sinestro (Amarelo)
 - Juramento  dos Lanternas Negros
-- Juramento dos Lanternas Brancos
 
 
 
-** senciência é a capacidade de sentir sensações e sentimentos de forma consciente.  
+** senciÃªncia Ã© a capacidade de sentir sensaÃ§Ãµes e sentimentos de forma consciente.  
